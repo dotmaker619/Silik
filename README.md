@@ -3,6 +3,8 @@ All of our company members are having communication on ![silik1](https://user-im
 You are welcome to our company at any time. 
 We have an interview and if that is good, we can work together.
 
+We have many positions for various kinds of skills so whatever your skill is, we need it.
+
 We are looking forward to working with you..
 
 If you are interested in, please contact me.
