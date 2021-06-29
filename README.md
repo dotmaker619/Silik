@@ -13,9 +13,8 @@ My ![silik1](https://user-images.githubusercontent.com/77270695/123692311-8571ce
 
 
 ```diff
-- Don't reply on
+- Don't reply on the site..
 ```
-![silik4](https://user-images.githubusercontent.com/77270695/123695878-f31ff900-d80f-11eb-8c16-758b7181099a.jpg)..
 ```diff
 - Just reply directly on 
 ```
