@@ -20,4 +20,6 @@ My ![silik1](https://user-images.githubusercontent.com/77270695/123692311-8571ce
 ```
 ![silik1](https://user-images.githubusercontent.com/77270695/123695943-07fc8c80-d810-11eb-86d6-a9b594a502b8.jpg)
 
+# IMPORTANT: We are looking for people in America/Europe with one pc which can be available 24 hours a day and good English skill
+#            Our jobs are not comfortable for Asians or Africans.
 
